@@ -1,3 +1,4 @@
+  ![İzlənmə](https://visitor-badge.laobi.icu/badge?page_id=nihatfarz.IT-Azerbaycan-Menbeleri)
 
 
 # Azərbaycan dilində informasiya texnologiyalarına aid müxtəlif faydalı mənbələr toplusu
